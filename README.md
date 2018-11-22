@@ -1,1 +1,0 @@
-# baltizard.pictures
